@@ -1,4 +1,4 @@
-- # obre mim
+- # sobre mim
 - 
 - 👋 ola,me chamo @miladyz15
 - 👀 eu estou interessada em aprender
