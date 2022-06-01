@@ -1,0 +1,5 @@
+- # obre mim
+- 
+- 👋 ola,me chamo @miladyz15
+- 👀 eu estou interessada em aprender
+- 🌱 eu estou aprendendo informatica
